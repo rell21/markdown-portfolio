@@ -1,5 +1,5 @@
 My Favorite Things to Do
-- Gaming
+- Gaming 
 - Writing
 - Coding
 And many more !
